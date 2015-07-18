@@ -1,0 +1,2 @@
+# bamba
+borom diamono
